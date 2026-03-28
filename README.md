@@ -1,0 +1,1 @@
+# Trust-badges-shopify-block
